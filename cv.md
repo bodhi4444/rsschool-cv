@@ -49,6 +49,6 @@
 * _Working period: from 05.2021 to the present time._
 
 # Сharacter traits:
- _I'm a restless person who is looking for new, better, and more. Purposeful and persistent. Communicative and sociable. With technical mind._
+ _I m a restless person who is looking for new, better, and more. Purposeful and persistent. Communicative and sociable. With technical mind._
 
 
